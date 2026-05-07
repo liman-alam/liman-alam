@@ -20,7 +20,7 @@ I'm a Computer Science student at LaGuardia Community College, developing a stro
 ## 📫 How to Reach Me
 
 - Email: liman20016@gmail.com
-- LinkedIn: [Mohammad Liman Alam](https://linkedin.com/in/YOUR-LINKEDIN-HANDLE)
+- LinkedIn: [Mohammad Liman Alam](https://www.linkedin.com/in/mohammad-liman-alam/)
 
 ## ⚡ A Little More About Me
 
